@@ -1,1 +1,1 @@
-# beat-urself-privacy-policy
+# Beat Urself Privacy Policy
